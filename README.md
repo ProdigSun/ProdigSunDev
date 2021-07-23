@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RafaPili1
-- 👀 I’m interested in CODING / PLAYING GAMES OR WATCHING MOVIES / READING
+- 👀 I’m interested in CODING / PLAYING GAMES / WATCHING MOVIES / READING
 - 🌱 I’m currently learning advanced Spring integrations
 - 💞️ I’m looking to collaborate on anything, really, let me help you!
 - 📫 How to reach me: here!
