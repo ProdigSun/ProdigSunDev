@@ -4,6 +4,4 @@
 - 💞️ I’m looking to collaborate on anything, really, let me help you!
 - 📫 How to reach me: here!
 
-<!---
-I'm interesting in helping in open projects, to further develop the open software community. Eager to learn new things!
---->
+I'm interested in helping in open projects, to further develop the open software community. Eager to learn new things!
